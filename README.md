@@ -1,2 +1,4 @@
 o bullying e um ato de intimidação no qual você encomoda uma determinada pessoa por ela ser diferente ou simplesmente ela faz isso porque não gosta de você. 
 O bullying pode cuasar muitas coisas nas pessoas que sofrem e que praticam o bullying 
+O bullying acontece por meio de agressões físicas, como: chutes, empurrões, brincadeiras que machucam, entre outras, ou por meio de agressão verbal que consiste em ameaçar ou intimidar alguém; humilhar por qualquer motivo; excluir; discriminar por cor, raça ou sexo; falar mal sem motivos e outras situações.
+Esta forma de bullying ocorre com bastante frequência em ambientes escolares,O bullying também pode ser representado no meio virtual. Neste caso é denominado ciberbullying e ocorre por meio de veiculação de fotografias, vídeos ou áudios na web, como por exemplo as redes sociais.
